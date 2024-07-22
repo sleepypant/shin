@@ -1,1 +1,1 @@
-What a pleasure the privellage is mine
+What a pleasure the privelege is mine
